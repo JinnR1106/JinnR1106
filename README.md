@@ -1,4 +1,4 @@
-Hi 👋 My name is My name is Jinn Rungchokchana
+Hi 👋 My name is My name is Jinn 
 ==============================================
 
 i've been learning
